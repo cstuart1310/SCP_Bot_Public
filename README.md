@@ -2,8 +2,7 @@
 RIP A.N.N.I.E 2019-2023. Killed by Elon wanting to charge me $100 per month as a student
 
 https://callumstuart.com/annie-twitter-scp-bot
-https://twitter.com/home
-
+https://twitter.com/AnomalousBot
 
 
 
